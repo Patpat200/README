@@ -25,8 +25,7 @@
 
 ## 📫 Get in Touch
 
-- LinkedIn: [linkedin.com/in/ton-profil](https://linkedin.com/in/ton-profil)
-- Email: [ton.email@example.com](mailto:ton.email@example.com)
+- Discord: [https://discord.gg/ge8JxXxh](mailto:https://discord.gg/ge8JxXxh)
 
 ---
 
