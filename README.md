@@ -25,7 +25,7 @@
 
 ## 📫 Get in Touch
 
-- Discord: [https://discord.gg/ge8JxXxh](mailto:https://discord.gg/ge8JxXxh)
+- Discord: [https://discord.gg/ge8JxXxh]
 
 ---
 
